@@ -1,3 +1,3 @@
-Hi i'm Richacrafter
+Hi i'm Richacrafter,
 
-pls don't disturb me!
+I'm a *programmer* (not rlly) I would make random thingos on itch.io. Stay tuned!!!
